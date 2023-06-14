@@ -1,1 +1,1 @@
-# -distribution-logistics_lecture
+# distribution-logistics_lecture
